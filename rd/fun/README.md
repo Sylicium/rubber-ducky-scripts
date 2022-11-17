@@ -1,0 +1,1 @@
+# Fun Rubber ducky scripts
